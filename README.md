@@ -5,6 +5,6 @@ For contact with me https://discord.gg/mRj3qMeUsg
 Video Guides:
 
 
-ENG будут
+ENG (https://youtu.be/rSUt8estB5Y)
 
 UA (https://youtu.be/KN2iAgosF_Q)
