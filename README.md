@@ -7,4 +7,4 @@ Video Guides:
 
 ENG будут
 
-UA будут
+UA (https://youtu.be/KN2iAgosF_Q)
